@@ -33,4 +33,4 @@ Decimals = 18
 -----------------------------------------------------------------
 GET SOME GOOD KARMA FOR FREE BY POSTING YOUR ETHEREUM ADRESS ON:
 -----------------------------------------------------------------
-                  https://twitter.com/xen3c
+                                                    https://twitter.com/xen3c
